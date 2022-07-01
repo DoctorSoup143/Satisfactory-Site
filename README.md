@@ -1,1 +1,1 @@
-The most official-unofficial guide for Satisfactory.
+The most official-unofficial guide for the factory building PC game Satisfactory.
